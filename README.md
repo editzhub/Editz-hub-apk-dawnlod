@@ -1,2 +1,13 @@
-# Editz-hub-apk-dawnlod
-Get Alight Motion CC XMLs Pro Video Editing APKs &amp; 4K Gaming Logo all in one app  EditzHub is your ultimate toolkit for mobile video editing!With this all-in-one app, you’ll get:Alight Motion CC XML files – Stylish, trendy color correction presetsPro video editing APKs – No watermark, unlocked premium tools4K gaming logo PNGs – 
+## Download Editz Hub APK 1.2
+
+[👉 Editz Hub APK 👈](https://github.com/editzhub/Editz-hub-apk-dawnlod/raw/esitzhub-1.2/Editz%20Hub_1.2_APKPure.apk)
+
+---
+
+### Features of Editz Hub:
+- Alight Motion CC XML files
+- Pro video editing tools
+- Stylish presets
+- 4K Gaming logos
+- No watermark
+- Free and safe download
